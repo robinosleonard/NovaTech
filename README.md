@@ -1,4 +1,4 @@
-# MockUp
+# NovaTech Innovations Inc. Brand Design Brief  (Mock-Up)
 Brand Design Brief (Mock-Up)
 
 Client Name: NovaTech Innovations Inc.
